@@ -5,7 +5,7 @@
 
 A **WEB DEVELOPMENT** ***Enthusiast*** 🚀.
  
-<img align="right" alt="GIF" src="https://i.pinimg.com/originals/e4/26/70/e426702edf874b181aced1e2fa5c6cde.gif" width="400"/>
+<img align="right" alt="GIF" src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExZ2w0Mm81czV6dWkybzNwYWY1czI2Z2loaDhwMGd3cXRhbjg0dXJrZSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/LMcB8XospGZO8UQq87/giphy.gif" width="400"/>
 
 **About Me!**
 
